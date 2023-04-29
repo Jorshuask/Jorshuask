@@ -1,4 +1,4 @@
-- 👋 ###Hi, I’m @Jorshuask
+### Hi, I’m @Jorshuask
 - 👀 I’m interested in all
 - 🌱 I’m currently learning Github
 
