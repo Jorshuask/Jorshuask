@@ -1,8 +1,7 @@
 Hi there, I’m @Jorshuask! 👋
+![Blue Yellow Futuristic Virtual Technology Blog Banner](https://github.com/Jorshuask/Jorshuask/assets/126438658/3102c2be-9329-42b5-b022-479561243f9f)
 
 Welcome to my GitHub profile! 🚀
-![_94939137-6ecd-47bb-a1be-d25342b99e56](https://github.com/Jorshuask/Jorshuask/assets/126438658/acd7d756-f1e6-4260-b0fd-098a409d829f)
-
 
 About Me
 👀 I'm interested in all things tech and beyond! 
