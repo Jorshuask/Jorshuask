@@ -1,4 +1,4 @@
-Hi there, I’m @Jorshuask! 👋
+Hi there, I’m @Jorshua! I'll be working in person, so see you soon!  👋
 ![Blue Yellow Futuristic Virtual Technology Blog Banner](https://github.com/Jorshuask/Jorshuask/assets/126438658/3102c2be-9329-42b5-b022-479561243f9f)
 
 Welcome to my GitHub profile! 🚀
